@@ -1,2 +1,0 @@
-# Tnayin
-Jarangutyun
